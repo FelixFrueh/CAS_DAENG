@@ -2,6 +2,8 @@
 MIKO-pixel_CAS_DAENG
 Projektarbeit "Vertriebsdaten"
 
+Hier lebe ich meine vandalischen Tendenzen aus buaaaauauauaua!!!
+
 Zielsetzung: 
 Know your customer zur Risikominimierung und Umsatzmaximierung, Kundenbindung
 
